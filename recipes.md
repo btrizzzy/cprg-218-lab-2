@@ -113,3 +113,19 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Cookies and Cream Cheesecake Cupcakes
+
+Ingredients:
+- 21 Oreo cookies, 15 left whole and 6 coarsely chopped
+- 2 8ox packages cream cheese, room temperature
+- 1/2 cup granulated sugar
+- 1/2 tsp vanilla extract
+- 2 large eggs, room temperature
+- 1/2 cup sour cream, room temperature
+- 1/8 tsp fine salt
+
+Instructions:
+1. Preheat the oven to 275°F. Line 2 standard muffin tins with 15 paper liners. Place 1 whole Oreo cookie in the bottom of each lined cup.
+2. In a large bowl, use an electric mixer to beat the cream cheese until smooth. Add the sugar and beat until combined. Beat in the vanilla then add the eggs, one at a time, beating until combined. Beat in the sour cream and salt. Do not overmix. Stir in the chopped Oreo cookies.
+3. Divide the batter among the cookie-lined cups, filling each almost to the top. Bake until the filling is set, about 22 minutes. Transfer to wire racks to cool completely inside the muffin tins. Refrigerate at least 4 hours, or overnight, before serving. These can be stored in an airtight container in the fridge for up to 3 days or in the freezer for up to 1 month. Defrost in the fridge overnight before serving.
